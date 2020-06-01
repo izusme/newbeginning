@@ -1,0 +1,2 @@
+# newbeginning
+Pierwsza stworzona strona
